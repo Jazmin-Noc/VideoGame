@@ -1,0 +1,1 @@
+El juego que analizaré es *Valiente* conocido popularmente como *Brave* su nombre en el idioma original. 
